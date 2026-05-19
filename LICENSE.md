@@ -1,4 +1,4 @@
-# 
+# vip JetBrains IntelliJ IDEA para PC plugins é o melhor JetBrains IntelliJ IDEA para PC plugins com ferramentas de depuração e gerenciamento de usuários. Seguro, confiável e
 
 
 
